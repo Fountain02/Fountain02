@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Fountain02
+- 👀 I’m interested in meeting new people
+- 🌱 I’m currently learning community and justice services
+- 📫 How to reach me @sydney.sharples@live.com
